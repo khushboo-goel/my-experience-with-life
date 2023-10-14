@@ -1,4 +1,8 @@
-# The Kite Runner - By Khaled Hosseini
+# (The Kite Runner - By Khaled Hosseini)[https://www.amazon.in/Kite-Runner-Khaled-Hosseini/dp/1408850257/ref=sr_1_3?crid=3KQSWRE945Q47&keywords=the+kite+runner+by+khaled+hosseini&qid=1697285291&sprefix=kite+%2Caps%2C218&sr=8-3]
 
-Review:
-This book really wrentched my heart. I have read the `The thousand splendid suns` as well in the past but I dont think that had this profound effect. Sure, some can call this book manipulative for all reasons. In my opinion, stories are written to invoke some emotions and make you think about the life from a different perspective, and this did it fairly well.
+### Review:
+This book really wrentched my heart. I have read the `The thousand splendid suns` as well in the past but I dont think that had this profound effect. Sure, some can call this book manipulative for all reasons. In my opinion, stories are written to invoke some emotions and make you think about the life from a different perspective, and this did it fairly well. The book takes you through the journey of a young chap, Amir, living a life torn by a war at the exterior as well as the interior. The journey of how he was at a young age in Afghanistan before the coup, how he fled to save his life and what brings him back to his homeland after 20 years. 
+
+Afghanistan has been mostly worn-torn in modern day and most of us have only known it like that. This book gives you some dive in the geographical, cultural and ethnic beauty the country had to offer. Makes you wonder how great this country would have been if last 30-40 years havent been the way they were.
+
+Peace is a priviledge in lot of parts of the world and this book address that. There are many key humanaterian issues touched upon in this book including casteism/ racism, sexual hate crimes against the ones not priviledged, power hunger and the destruction it can cause, hates speud on the name of religion etc. But that is not all. It also has a very emotional core of fear, guilt, shame, forgiveness and redemption. I almost cried reading this book, at how outer scenarios and fake happiness can never heal you from inside unless you are ready to forgive yourself. I think that is the lesson everyone will take from this book.
